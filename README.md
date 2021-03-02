@@ -1,0 +1,1 @@
+# ninz-coin
